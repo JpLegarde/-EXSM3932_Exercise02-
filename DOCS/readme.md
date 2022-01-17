@@ -1,0 +1,1 @@
+hello my name is joseph people call me jp for short i like to play video games and work out and go for walks. i used to like to fix computers and help people out with them. idont really have any expierence besides just using computers
